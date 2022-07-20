@@ -4,4 +4,4 @@
 
 🌱 I'm currently (07. 2022.) working on a webpage.
 
-📫 If you want to reach me for some wierd reason you can write me an email about it to: yeru065077@gmail.com
+📫 If you want to reach me for some wierd reason you can write me an email to: yeru065077@gmail.com
